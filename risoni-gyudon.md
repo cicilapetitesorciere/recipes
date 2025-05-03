@@ -1,8 +1,9 @@
-1. Bring a pot of water to boil and cook orzo until al dente, then strain!
+1. Bring a pot of water to boil and cook orzo (~ 30g dry per serving) until al dente, then strain!
 
-2. In a pan or wok seasoned with laoganma chili oil,
+2. In a pan or wok seasoned with laoganma chili oil (~ 3/4tsp per serving),
 
    i. Add diced onions! Cook until soft!
+   
    ii. Set aside some cooked onions for step 3!
    
    iii. Add sliced mushrooms! Cook until soft!
@@ -13,13 +14,13 @@
 
    vi. Add orzo from step 1!
 
-   vii. Add chicken stock (and water if necessary)!
+   vii. Add chicken stock (~ 2tsp per serving) (and water if necessary)!
 
    viii. Add turmeric!
  
 4. In a bowl, mix,
 
-   i. Ground beef,
+   i. Ground beef (~ 60g per serving),
 
    ii. Egg,
 
@@ -27,11 +28,11 @@
 
    iv. Minced garlic,
 
-   v. Anise seeds,
+   v. Anise seeds (~ 1/4 tsp per serving),
 
    vi. Maggi seasoning!
 
-6. Scoop a ball of ground beef mix (from 4) and compress until solid, then flatten and fry in sesame oil until cooked through!
+6. Scoop a ball of ground beef (100g each) mix (from 4) and compress until solid, then flatten and fry in sesame oil until cooked through!
 
 7. Fry an egg sunny-side-up in sesame oil and cover with sesame seeds and chopped green onions!
 
